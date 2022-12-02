@@ -1,1 +1,1 @@
-Please read me before use
+Please read
